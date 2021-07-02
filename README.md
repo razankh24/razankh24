@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @razankh24
-- 👀 I’m interested in science and technology 
+- physics and astronomy student at KSU
+- 👀 I’m interested in science, technology, literature and art. 
 
 
 <!---
